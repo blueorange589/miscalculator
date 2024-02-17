@@ -9,3 +9,5 @@ difficult process of making an application, meetings, tests, paperwork is blocki
 I think saxophone is nice as a saxophone, not on objectives section of a CV.
 
 no ones happy to lose time in wrong place for them.
+
+my best day in life, the day i moved to USA. Not because it's USA, but everything new, a different lifestyle to see, everything changed, i felt first time i breathe at my 30, when i settle in my room in Greek village.
