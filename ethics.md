@@ -7,3 +7,5 @@ the demand for ethics is unethical, so paradoxal.
 is putting the other person into "have to" state, forcing to obey.
 
 a should, a must, an ought is a "have to", not only in aviation, but in daily life as well.
+
+i only evaluate on "dirty, ugly, lo-quality", not on ethics. I wouldn't expect ethics, even from my enemy.
