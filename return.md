@@ -7,3 +7,5 @@ i wish life flows in a way (for everyone) that i can change my life in a day, le
 
 difficult process of making an application, meetings, tests, paperwork is blocking people, not to mention burden called CV. My objective? make money. what else can be?
 I think saxophone is nice as a saxophone, not on objectives section of a CV.
+
+no ones happy to lose time in wrong place for them.
