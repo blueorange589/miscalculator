@@ -21,6 +21,6 @@ is an enemy of freedom and independence, is an intervener to duty of security an
 with its bi-products all racist, full of hate and horror... by the start, through the end, ethics is biggest threat to societies and the life.
 
 -----
-solution to paradoxal
+solving a paradox
 invalidation of hypotesis
 that would make everything (you can imagine) is ethical, including unethical approach of ethics.
