@@ -8,4 +8,4 @@ Probably many observed, a dog or a bear can not go further whn cat is reacting. 
 
 Probably they know, one looks alive, may be their end as well.
 
-Life requires some minimum amount of will.
+Life requires some minimum amount of will, rather than being traded for non-life things.
