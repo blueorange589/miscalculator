@@ -39,4 +39,4 @@ nothing even wrong with not paying for food
 Nothing wrong with anything, its all ethical
 
 ----
-hypothesis: although known as opposite of the thesis, actually it is feeder of thesis.
+hypothesis: although known as opposite of the thesis, actually it is feeder of thesis. every thesis would create it's hypothesis' and live with it, a.k.a duality.
