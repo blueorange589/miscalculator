@@ -7,3 +7,6 @@ one of most prominent example is to focus on others and their mistakes rather th
 what is being done is to overwrite year by year, until people don't remember old themselves. rest runs on auto-pilot. people think (quite hard to reverse), this is me, this is life.
 
 so the crew can sail to new horizons.
+
+----
+the definer is, who gets supported and who gets blocked.
