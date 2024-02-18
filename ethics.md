@@ -1,6 +1,6 @@
 this has ruined your life and the world.
 
-coupled with duality from india. tht it creates and live with its opposite.
+coupled with duality from india. that it creates and live with its opposite.
 
 the demand for ethics is unethical, so paradoxal.
 
@@ -16,6 +16,6 @@ it wasn't ethics (others rule), thats stopping you and others from doing what th
 
 if one gets punished due to ethics, everything else around has to be perfect. otherwise it is unfair, so again un-ethical.
 
-is an intervener to duty of security and law forces, with no seat you can apply with objection.
+is an enemy of freedom and independence, is an intervener to duty of security and law forces, with no seat you can apply with objection.
 
 with its bi-products all racist, full of hate and horror... by the start, through the end, ethics is biggest threat to societies and the life.
