@@ -18,4 +18,4 @@ if one gets punished due to ethics, everything else around has to be perfect. ot
 
 is an intervener to duty of security and law forces, with no seat you can apply with objection.
 
-with its bi-products all racist, full of hate and horror... by the start, through the end, ethics is biggest threat to societies.
+with its bi-products all racist, full of hate and horror... by the start, through the end, ethics is biggest threat to societies and the life.
