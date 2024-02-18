@@ -16,4 +16,4 @@ it wasn't ethics (others rule), thats stopping you and others from doing what th
 
 if one gets punished due to ethics, everything else around has to be perfect. otherwise it is unfair, so again un-ethical.
 
-is an intervener to security and law forces.
+is an intervener to duty of security and law forces.
