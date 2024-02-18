@@ -37,3 +37,6 @@ ethically nothing wrong with the war (except than logical part)
 nothing even wrong with not paying for food
 
 Nothing wrong with anything, its all ethical
+
+----
+hypothesis: although known as opposite of the thesis, actually it is feeder of thesis.
