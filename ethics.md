@@ -13,3 +13,5 @@ i only evaluate on "dirty, ugly, low-quality", not on ethics. I don't expect eth
 the way to get rid of ethics is not to expect/demand it from others.
 
 it wasn't ethics (others rule), thats stopping you and others from doing what they don't do.
+
+if one gets punished due to ethics, everything else around has to be perfect. otherwise it is unfair, so again un-ethical.
