@@ -23,4 +23,13 @@ with its bi-products all racist, full of hate and horror... by the start, throug
 -----
 solving a paradox
 invalidation of hypotesis
+
 that would make everything (you can imagine) is ethical, including unethical approach of ethics.
+
+therefore, ethically nothing wrong with racing for front seats
+
+ethically nothing wrong with disobeying the queue (why lose time? solution is different)
+
+ethically nothing wrong with the war (except than logical part)
+
+Nothing wrong with anything, its all ethical
