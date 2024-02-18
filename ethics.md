@@ -28,7 +28,9 @@ that would make everything (you can imagine) is ethical, including unethical app
 
 therefore, ethically nothing wrong with racing for front seats
 
-ethically nothing wrong with disobeying the queue (why lose time? solution is different)
+ethically nothing wrong with disobeying the queue 
+hypothesis: social order, respect
+invalidation: why lose time? solution is different.
 
 ethically nothing wrong with the war (except than logical part)
 
