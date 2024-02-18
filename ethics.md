@@ -19,3 +19,8 @@ if one gets punished due to ethics, everything else around has to be perfect. ot
 is an enemy of freedom and independence, is an intervener to duty of security and law forces, with no seat you can apply with objection.
 
 with its bi-products all racist, full of hate and horror... by the start, through the end, ethics is biggest threat to societies and the life.
+
+-----
+solution to paradoxal
+invalidation of hypotesis
+that would make everything (you can imagine) is ethical, including unethical approach of ethics.
