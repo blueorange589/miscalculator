@@ -1,0 +1,1 @@
+and finally human saw, 100 billion dolars don't make 5 kurus (penny in TRY) in today's exchange rate.
