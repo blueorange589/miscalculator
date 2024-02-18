@@ -22,7 +22,7 @@ with its bi-products all racist, full of hate and horror... by the start, throug
 
 -----
 solving a paradox
-invalidation of hypotesis
+invalidation of hypothesis
 
 that would make everything (you can imagine) is ethical, including unethical approach of ethics.
 
