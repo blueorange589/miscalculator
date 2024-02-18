@@ -32,4 +32,6 @@ ethically nothing wrong with disobeying the queue (why lose time? solution is di
 
 ethically nothing wrong with the war (except than logical part)
 
+nothing even wrong with not paying for food
+
 Nothing wrong with anything, its all ethical
