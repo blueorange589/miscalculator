@@ -7,4 +7,4 @@ some short-sighted, some visionaire
 some reckless, some willful
 some love society, some love self
 
-based on time invested, superiority and control works for one captured
+based on time invested, superiority and control works for one captured, ends up pain of love, that you didn't walk your own way.
