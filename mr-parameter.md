@@ -9,4 +9,6 @@ Parameter is a force
 
 Welcome to the world of Mr.Parameter.
 
-It takes 45 minutes for Jenny to drive to work from home. 10 minutes for getting subs on the way accounted. When "Jenny the sub-maker" is late to prepare subs, she must be warned, since Jenny wants her subs on time and Jenny the Boss" is concerned with "Jenny the Investor".
+It takes 45 minutes for Jenny to drive to work from home. 10 minutes for getting subs on the way accounted. When "Jenny the sub-maker" is late to prepare subs, she must be warned, since Jenny wants her subs on time and "Jenny the Boss" is concerned with "Jenny the Investor".
+
+Everything must fit in the formula. (!)
